@@ -4,3 +4,5 @@ Copper Sovereign Liberty Coin is an economic plan, a free system of currency &am
 # Contents
 
 [for%20a%20Copper%20Sovereign%20Liberty%20Coin.1666-10002-.pdf](https://github.com/freedom-foundation/Copper_Sovereign_Liberty_Coin/blob/main/for%20a%20Copper%20Sovereign%20Liberty%20Coin.1666-10002-.pdf) - This is the most recent PDF. The Copper Sovereign Liberty Coin economic plan is outlined herein.
+
+ So I read this over again and it is missing a phrase and the links are dead so it needs to be edited. 
